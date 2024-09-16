@@ -1,5 +1,5 @@
 ## Yahir (Lughx)
-**Desarrollador**
+**`Desarrollador/Gamer/Creador`**
 
 Estudiante apasionado por la tecnología, siempre dispuesto a desarrollar nuevas habilidades, con un gran interés por el desarrollo web. Siempre llevando a cabo nuevos proyectos con el fin de ampliar sus conocimientos.
 
